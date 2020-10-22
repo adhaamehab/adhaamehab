@@ -1,9 +1,1 @@
-### Hi there 👋
-
-I'm a Software Engineer and a Grad Student.
-
-- Site Reliability Engineer/DevOps @statsbomb
-- Obsessed with Cloud, Infrastructure and Distributed systems.
-- 💬 Ask me about Careers, Tech & Games 
-- 📫 How to reach me: @whoisadham on Twitter
-- 😄 Pronouns: He/Him
+![](https://images.pexels.com/photos/547115/pexels-photo-547115.jpeg?cs=srgb&dl=pexels-krivec-ales-547115.jpg)
