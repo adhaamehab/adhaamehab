@@ -1,1 +1,1 @@
-![](https://images.pexels.com/photos/547115/pexels-photo-547115.jpeg?cs=srgb&dl=pexels-krivec-ales-547115.jpg)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgeorgiasfavouritethings.wordpress.com%2F2019%2F07%2F04%2Fwelcome-everything-is-fine-the-good-place-season-1-opinions-comments%2F&psig=AOvVaw2-syc1WPha_QfF6_vLtN_2&ust=1610225370233000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCJj0jY2bje4CFQAAAAAdAAAAABAD
